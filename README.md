@@ -11,3 +11,4 @@ The United States Senate Youth Program: https://www.dodea.edu/Curriculum/socialS
 Driven:https://www.merriam-webster.com/dictionary/driven
 20 Questions: https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT57gpJyy-FBrOV5A2ORcQ62FmbmY9ITH-v_g5rOWkzr7OhwHFluQ
 20Q game:http://nadafy.com/20QuestionsGame.aspx
+Amir Mesic
